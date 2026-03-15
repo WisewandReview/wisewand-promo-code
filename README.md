@@ -1,4 +1,4 @@
-# Wisewand Promo Code – Use WISESAVE at Checkout
+# Wisewand Promo Code – Use WISESAVE at Checkout for 10% off
 
 If you are searching for a **Wisewand promo code**, the code to try is **WISESAVE**.
 
